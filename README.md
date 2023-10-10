@@ -1,0 +1,2 @@
+# Fiki_ajah
+jomblo
